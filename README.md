@@ -1,6 +1,6 @@
  #Ahsan Ghazni Khan                         
     
-![03345255087](https://user-images.githubusercontent.com/22774319/202912498-bc307138-0acb-457d-b5fb-b89ba553afb7.jpg)
+![03345255087](https://user-images.githubusercontent.com/22774319/202912891-4896c0d7-9957-4044-925a-d24716bf5139.jpg)
 
 m: 03345255087 Address: house# 283, street# 86, E11/2, Islamabad email: ahsan123pk@gmail.com
 
